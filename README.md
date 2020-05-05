@@ -1,3 +1,3 @@
 # maninnrhbkh
 my repositoy 
-I love :coffee: :apple: and :banna:
+I love :coffee: :apple: and :dancer:
